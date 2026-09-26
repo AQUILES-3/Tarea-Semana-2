@@ -1,6 +1,5 @@
 # Tarea-Semana-2
 
-Joshua 2025-0729
 
 VIDEO DEMOSTRATIVO:
 
